@@ -83,7 +83,7 @@ Don't leave your digital identity or business organization to chance. Get your c
 
 > 💳 **Contact us to get your copy | One-time payment with NO monthly or annual subscriptions | Price: $25**
 > 
-> 🌐 [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)
+> [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)
 > 
 > ahmedantar.office@gmail.com
 > 
