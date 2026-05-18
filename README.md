@@ -7,7 +7,7 @@
 
 Peace, mercy, and blessings of Allah be upon you.
 
-We are thrilled to launch the second version of the most powerful and intelligent system for creating and managing professional QR codes—our brand-new software: **Codeobia 2.0.0** 🚀
+We are thrilled to launch the second version of the most powerful and intelligent system for creating and managing professional QR codes—our brand-new software: **Codeobia 2.0.0** 
 
 Are you looking for an integrated experience that combines creative design with absolute digital control? Meet **Codeobia**, the comprehensive desktop solution that gives you the full power to transform your data into smart codes with a unique visual identity.
 
@@ -83,5 +83,6 @@ Don't leave your digital identity or business organization to chance. Get your c
 
 > 💳 **Contact us to get your copy | One-time payment with NO monthly or annual subscriptions | Price: $25**
 > 
-> 🌐 [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)  
-> 📧 [ahm
+> 🌐 [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)
+> ahmedantar.office@gmail.com
+> https://aboantar.gumroad.com/l/glqet
