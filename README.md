@@ -7,7 +7,7 @@
 
 Peace, mercy, and blessings of Allah be upon you.
 
-We are thrilled to launch the second version of the most powerful and intelligent system for creating and managing professional QR codes—our brand-new software: **Codeobia 2.0.0** 
+We are thrilled to launch the second version of the most powerful and intelligent system for creating and managing professional QR codes our brand-new software: **Codeobia 2.0.0** 
 
 Are you looking for an integrated experience that combines creative design with absolute digital control? Meet **Codeobia**, the comprehensive desktop solution that gives you the full power to transform your data into smart codes with a unique visual identity.
 
